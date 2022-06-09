@@ -8,3 +8,10 @@ My name is Anya Choudhary.
 I plan on studying environmental engineering in college. 
 I have another blog about sustainability in the fashion industry. 
 I love travelling and have been to over 20 countries. 
+
+My instagram is anyachoudhary_
+My email is achoudhary1@ebnet.org
+
+![image](https://user-images.githubusercontent.com/107055612/172898393-4e34f9a5-1006-448f-9d5d-bc17bb8d6b81.png)
+
+![image](https://user-images.githubusercontent.com/107055612/172898321-b04e268a-fe30-4aaf-bf15-4a34ab6dac7f.png)
